@@ -4,7 +4,7 @@
 (第三种寻找同类, 如果想寻找同类 自己心里有一个隐秘地点 看谁能进入 谁就是同类)
 
 
-2. 一些感觉值得我去接触的东西 it deserves my time
+2. 一些感觉值得我去接触的东西 it deserves my time (my time is good and pretty)
 
 = = = 脑容量回收站 = = =
 ```
