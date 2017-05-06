@@ -1,0 +1,8 @@
+
+函数 一等公民
+
+纯函数，没有副作用
+
+http://blog.leapoahead.com/2015/09/19/function-as-first-class-citizen/
+
+-
