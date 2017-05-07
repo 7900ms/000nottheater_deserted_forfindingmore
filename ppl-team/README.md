@@ -14,7 +14,8 @@
 
 有人研究说swinger的关系质量和幸福程度普遍高于一般couple，实际接触下来的感觉也是这样。一般遇到的couple彼此之间感情都很牢固，亲密感强，语言和肢体沟通都有超好的chemistry。对外普遍非常善于social，让外人感觉如沐春风，这可以说是亲密关系的结果而非原因。
 
+= = = 脑容量回收站 = = =
 
-
+[【转】亲历荷兰swinger club 点滴](http://blog.ifeng.com/article/26747241.html)
 
 -
