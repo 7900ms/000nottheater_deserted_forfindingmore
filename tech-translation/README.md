@@ -9,7 +9,7 @@ coding 是创造和毁灭？我并不这么看。它不过是一种翻译，把�
 
 简单快速得翻译好，就很有价值。因为机器不懂人的话，所以我翻译好发给机器，that's it!
 
-![](http://i.imgur.com/h1X5BdB.jpg)
+![](http://i.imgur.com/h1X5BdB.jpg =250px)
 
 我觉得这个工作很棒很funny, 值得我去做!
 
