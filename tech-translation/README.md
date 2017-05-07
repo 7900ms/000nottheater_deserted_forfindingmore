@@ -32,8 +32,12 @@ OK了！
 https://www.v2ex.com/t/359055#机器学习
 https://www.v2ex.com/t/359204#Elasticsearch 原来说干这个使的，呵呵，简直就像借助软件来瞎掰 
 https://www.v2ex.com/t/359309#生命是怎么浪费的
-https://www.v2ex.com/t/359599#它不值得我的时间 < 交给那些觉得值得的人去做吧 >
+https://www.v2ex.com/t/359599#它不值得我的时间 < 交给那些觉得值得的人去做吧 > 👇🏼
 G 幸运 sap #https://web.archive.org/web/20170506175025/http://segi-11.blog.163.com/blog/static/12463805200712693835748/# 这个就挺值得的 < deserve my time >
 ```
+
+这些人真的很怪，说的好像 “它很不值得做 但兴许有什么好办法能解决它” 就值得了、就愿意做了一样。不愿意就是不愿意，因为它本身不值得我做(它的性质)。
+
+水管工不值得我当，而且我不会因为手里有了一个顺手的扳手 就觉得我值得去当一个水管工 [because it is not deserve a good and pretty me.](https://github.com/7900ms/nottheater_deserted/blob/master/small/小伎俩.md#分辨是否喜欢一个事，看是否觉得是“值得我去做”的)
 
 -
