@@ -22,7 +22,7 @@ OK了！
 (机器话的背后，还有人去研究；人话的背后，也有人去研究。我可能会去偏向“人话”这层 感兴趣。偏向机器那层我不会去感兴趣的大概)
 
 -
-
+```
 (暴击一百点)
 有确定的事 为人服务，为啥去玩不确定的机器学习
 好好的 ‘给人服务’ 的公司不去，为啥跟一大堆无名氏打交道
@@ -30,6 +30,7 @@ https://www.v2ex.com/t/359055#机器学习
 https://www.v2ex.com/t/359204#Elasticsearch 原来说干这个使的，呵呵，简直就像借助软件来瞎掰 
 https://www.v2ex.com/t/359309#生命是怎么浪费的
 https://www.v2ex.com/t/359599#它不值得我的时间
-G 幸运 sap #https://web.archive.org/web/20170506175025/http://segi-11.blog.163.com/blog/static/12463805200712693835748/# 这个就挺值得的
+G 幸运 sap #https://web.archive.org/web/20170506175025/http://segi-11.blog.163.com/blog/static/12463805200712693835748/# 这个就挺值得的 < deserve my time >
+```
 
 -
