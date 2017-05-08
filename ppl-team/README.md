@@ -24,5 +24,6 @@
 就像是淡白色，调色板上加上一点儿，颜色才会漂亮。玛丽娅的信任是很重要的，继而有了 “hear you in passion, i listen, and im happy”
 
 [午夜巴塞罗那 70:30](http://www.bilibili.com/video/av2065903/)
+[午夜巴塞罗那 52:24](http://www.bilibili.com/video/av2065903/) 第一次出现 ‘缺少说-我们的关系很完美 但是缺少一点儿东西’
 
 -
