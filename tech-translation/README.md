@@ -55,6 +55,6 @@ G 幸运 sap #https://web.archive.org/web/20170506175025/http://segi-11.blog.163
 
 真是不值得去做的
 
-“我们这一代人中间最出色的大脑只想着如何让人们点击广告，简直逊爆了” -- jeff hammerbacher, [在宣布离开facebook时](http://www.solidot.org/story?sid=52298)。而且你基本不可能在想着卖广告时还想着别的
+“我们这一代人中间最出色的大脑只想着如何让人们点击广告，简直逊爆了” -- jeff hammerbacher, [在宣布离开facebook时](http://www.solidot.org/story?sid=52298)。而且你基本不可能在想着卖广告(ohmygad what am i doing)时还想着别的
 
 -
