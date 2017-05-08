@@ -64,7 +64,7 @@ G 幸运 sap #https://web.archive.org/web/20170506175025/http://segi-11.blog.163
 对这种 欠缺表达力 的感觉，很抓狂。想说啥 说不出来，没有合适的语言说出来。
 ———— 有合适的语言说出来 就好很多！
 
-[对于表达力的敏锐 - 这很像翻译的一种](https://github.com/7900ms/000nottheater_deserted_systemlibrary/edit/master/supplementary/term-东西-表达力.md)
+[对于表达力的敏锐 - 这很像翻译的一种](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-东西-表达力.md)
 
 
 
