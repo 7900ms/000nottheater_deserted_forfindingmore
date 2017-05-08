@@ -18,4 +18,11 @@
 
 [【转】亲历荷兰swinger club 点滴](http://blog.ifeng.com/article/26747241.html)
 
+= = = 脑容量回收站 = = =
+
+午夜巴塞罗那里，玛丽娅接受你们的激情，因为玛丽娅信任了vicky并发现vicky是她和juan之前缺少的元素(缺少了salt就不能活)
+就像是淡白色，调色板上加上一点儿，颜色才会漂亮
+
+[午夜巴塞罗那 70:30](http://www.bilibili.com/video/av2065903/)
+
 -
