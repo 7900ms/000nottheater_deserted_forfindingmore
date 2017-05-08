@@ -31,3 +31,11 @@ STAR的原因
 STAR的原因是，它和 (如果想寻找同类，第二种寻情) 很配合
 
 -
+
+= = = 脑容量回收站 = = =
+
+事情本身的意义，就像 好的[表达力](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-东西-表达力.md)的意义
+
+
+
+-
