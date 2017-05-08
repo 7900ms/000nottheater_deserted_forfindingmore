@@ -57,4 +57,16 @@ G 幸运 sap #https://web.archive.org/web/20170506175025/http://segi-11.blog.163
 
 “我们这一代人中间最出色的大脑只想着如何让人们点击广告，简直逊爆了” -- jeff hammerbacher, [在宣布离开facebook时](http://www.solidot.org/story?sid=52298)。而且你基本不可能在想着卖广告(ohmygad what am i doing)时还想着别的
 
+= = = 脑容量回收站 = = =
+
+为什么会抓狂？
+
+对这种 欠缺表达力 的感觉，很抓狂。想说啥 说不出来，没有合适的语言说出来。
+———— 有合适的语言说出来 就好很多！
+
+[对于表达力的敏锐 - 这很像翻译的一种](https://github.com/7900ms/000nottheater_deserted_systemlibrary/edit/master/supplementary/term-东西-表达力.md)
+
+
+
+
 -
