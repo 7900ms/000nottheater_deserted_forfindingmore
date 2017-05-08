@@ -50,3 +50,11 @@ G 幸运 sap #https://web.archive.org/web/20170506175025/http://segi-11.blog.163
 水管工不值得我当，而且我不会因为手里有了一个顺手的扳手 就觉得我值得去当一个水管工 [because it is not deserve a good and pretty me.](https://github.com/7900ms/nottheater_deserted/blob/master/small/小伎俩.md#分辨是否喜欢一个事，看是否觉得是“值得我去做”的)
 
 -
+
+= = = 脑容量回收站 = = =
+
+真是不值得去做的
+
+“我们这一代人中间最出色的大脑只想着如何让人们点击广告，简直逊爆了” -- jeff hammerbacher, [在宣布离开facebook时](http://www.solidot.org/story?sid=52298)。而且你基本不可能在想着卖广告时还想着别的
+
+-
