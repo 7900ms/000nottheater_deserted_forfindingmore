@@ -15,7 +15,11 @@
 
 = = = 脑容量回收站 = = =
 
-[养眼](https://github.com/7900ms/000nottheater_deserted_systemthunder/blob/master/torrent/m-节目-美娜.md)，就是一种最好的服务
+[养眼](https://github.com/7900ms/000nottheater_deserted_systemthunder/blob/master/torrent/m-节目-美娜.md)，就是一种最好的服务: 有服务心、让人很简单地就感受到服务
+
+有服务心：而不是有养爷心(被服务心)
+
+让人感受到服务：这是一种[表达力](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-东西-表达力.md)哦
 
 
 
