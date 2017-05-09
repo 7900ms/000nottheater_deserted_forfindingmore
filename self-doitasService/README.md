@@ -22,5 +22,8 @@
 让人感受到服务：这是一种[表达力](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-东西-表达力.md)哦
 
 
+-
+
+不需要“人前美艳、人后黑脸”的这么看：寻找同类-第三种寻情，我心情好 就服务，心情不好or有别的事情or决定自己做事情就没想寻找同类，就先不服务咯
 
 -
