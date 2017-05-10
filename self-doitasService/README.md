@@ -29,3 +29,12 @@
 看别人值得服务(而不是单纯地想服务别人)，就带着服务心。然后去找东西，因为有东西才能服务人呀 ~ 找东西服务人：服务心 美颜(养眼) 亲切话语 熟悉地点([陪人](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-聊句-陪人.md))
 
 -
+
+```
+看有没有兴致：
+看着就有兴致
+看着兴致一般般
+看着烦
+一看到你就烦
+```
+
