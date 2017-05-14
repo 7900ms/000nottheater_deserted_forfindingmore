@@ -17,6 +17,13 @@
 
 [养眼](https://github.com/7900ms/000nottheater_deserted_systemthunder/blob/master/torrent/m-节目-美娜.md)，就是一种最好的服务: 有服务心、让人很简单地就感受到服务
 
+看有没有兴致(给服务到他人)：
+```
+好看的举止 出自名家 骑士团的后背
+富有磁性的声音 养耳
+好看的外表 养眼 
+```
+
 有服务心：而不是有养爷心(被服务心)
 
 让人感受到服务：这是一种[表达力](https://github.com/7900ms/000nottheater_deserted_systemlibrary/blob/master/supplementary/term-东西-表达力.md)哦
